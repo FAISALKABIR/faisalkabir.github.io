@@ -1,4 +1,4 @@
-# [FaisalKabir.github.io](https://faisalkabir.github.io)
+# [FAISALKABIR.github.io](http://faisal.dev/)
 
 ## My Digital Self in Cyberspace
 
